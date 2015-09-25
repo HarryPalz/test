@@ -1,2 +1,1 @@
-# test
-An example repo for github, mmmkay?
+My favs resty is probably Odd Duck in MKE, mmkay?
